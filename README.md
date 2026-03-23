@@ -1,0 +1,1 @@
+# QVI_ChipCategory_Strategic_Analysis
